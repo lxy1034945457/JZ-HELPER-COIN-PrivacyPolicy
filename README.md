@@ -1,0 +1,1 @@
+# JZ-HELPER-COIN-PrivacyPolicy
